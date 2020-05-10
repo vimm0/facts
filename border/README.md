@@ -22,3 +22,7 @@
 - Govt opposes inauguration of link road connecting Lipu Lekh - May 09, 2020
 - [India rejects Nepal’s protest against new road to Lipulekh](https://www.hindustantimes.com/india-news/india-rejects-nepal-s-protest-against-new-road-to-lipulekh/story-MuYdyt9t6jbrZgxCbpMfwO.html) - May 09, 2020
 - [After Lipulekh, Chinese media’s May 2 tweet on Chomolungma trends on social media](https://thehimalayantimes.com/nepal/chinese-media-claims-mt-everest-is-in-china/) - May 10, 2020
+
+# Reference
+- http://www.bordernepal.com/
+- https://border-nepal.com/
