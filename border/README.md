@@ -26,3 +26,4 @@
 # Reference
 - http://www.bordernepal.com/
 - https://border-nepal.com/
+- https://en.wikipedia.org/wiki/Treaty_of_Sugauli
